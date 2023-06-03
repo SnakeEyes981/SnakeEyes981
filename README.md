@@ -9,7 +9,7 @@ Here are some ideas to get you started:
 - 🌱 I’m currently learning lots of things
 - 👯 I’m looking to collaborate on making money
 - 💬 Ask me about my problems
-- 📫 How to reach me: [hassanyaseen189@gmail.com](mailto:hassanyaseen189@gmail.com)
+- 📫 How to reach me: [MAIL AT...](mailto:hassanyaseen189@gmail.com)
 - 😄 Pronouns: He/Him
 - ⚡ Fun fact: Programming is easy
 
